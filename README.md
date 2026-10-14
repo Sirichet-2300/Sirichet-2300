@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **Web Developer**
 
-- 📫 How to reach me **ph.sirichet@gmail.com**
+- 📫 How to reach me **sirichet.ph@gmail.com**
 
 - ⚡ Fun fact **I'm funny to get challenge**
 
